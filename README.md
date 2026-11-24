@@ -1,4 +1,4 @@
-Hi there👋 I'm Tordev and all i do is LARP.
+Hi there👋 I'm Tordev and im a beginner coder trying to learn new skills and improve.
 
 
 My skills:
